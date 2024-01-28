@@ -14,3 +14,10 @@
 
 # [azerinoromichik](https://cdn.discordapp.com/attachments/1105799348584984586/1192417865404518450/azerinoromchik.osk?ex=65a900ad&is=65968bad&hm=e395fbb38523bb06153bb0f66b7e850524f71efa7c1e5fe6faf5e571f5a6c092&)
 
+# [enrigoto](https://cdn.discordapp.com/attachments/1196424236999397407/1201162895833182328/enrigoto.osk?ex=65c8d11e&is=65b65c1e&hm=c6d1b43d4a474a9eaec049a87b2b4185e6c921d7d318d93c05259d7a832c57f2&)
+
+# [kita](https://cdn.discordapp.com/attachments/1196424236999397407/1201162894948171776/kita.osk?ex=65c8d11e&is=65b65c1e&hm=4f4d142e43e5b013a5faf2ff80611c93266962b8e828a297695a68a841d71f67&)
+
+# [ryo](https://cdn.discordapp.com/attachments/1196424236999397407/1201162895266947153/ryo.osk?ex=65c8d11e&is=65b65c1e&hm=a6da50036658fb6ed04f712fc27fb20d93d26bd38180c04a25b0796ab6470975&)
+
+# [ijika](https://cdn.discordapp.com/attachments/1196424236999397407/1201162894570696774/ijika.osk?ex=65c8d11e&is=65b65c1e&hm=570dacaaa07aa88c9cd1968ec075d722ad8a8e4eba97163591a83087c2d0e5fa&)
