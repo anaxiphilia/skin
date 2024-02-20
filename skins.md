@@ -21,3 +21,5 @@
 # [ryo](https://cdn.discordapp.com/attachments/1196424236999397407/1201162895266947153/ryo.osk?ex=65c8d11e&is=65b65c1e&hm=a6da50036658fb6ed04f712fc27fb20d93d26bd38180c04a25b0796ab6470975&)
 
 # [ijika](https://cdn.discordapp.com/attachments/1196424236999397407/1201162894570696774/ijika.osk?ex=65c8d11e&is=65b65c1e&hm=570dacaaa07aa88c9cd1968ec075d722ad8a8e4eba97163591a83087c2d0e5fa&)
+
+# [izduh 3.1 remake](https://cdn.discordapp.com/attachments/1196424236999397407/1209480186735624203/izduh_v3.1_remake.osk?ex=65e71333&is=65d49e33&hm=95218fd86b0d0b2825685efeca3fd9eecdb32b1a32cefbb991916f8e255e71fc&)
